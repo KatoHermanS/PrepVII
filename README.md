@@ -1,2 +1,0 @@
-# PrepVII
-My Profile
